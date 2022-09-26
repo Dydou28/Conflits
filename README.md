@@ -1,1 +1,1 @@
-# Conflits
+Nous sommes en conflits.
